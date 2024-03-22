@@ -74,7 +74,7 @@
 ## 7. Tropical Keto "Pineapple" Smoothie
 **Net Carbs**: ~5g
 ### Ingredients:
-- 1 cup keto-friendly pineapple juice (prepared as discussed)
+- 1 cup keto-friendly pineapple juice (pineapple flavoring, water and stevia)
 - 1/2 cup unsweetened almond milk or coconut milk for extra creaminess
 - 1/4 cup frozen raspberries or strawberries for added texture and fiber
 - 1 tablespoon of coconut oil or MCT oil for healthy fats
