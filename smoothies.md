@@ -80,3 +80,32 @@
 - 1 tablespoon of coconut oil or MCT oil for healthy fats
 - Ice cubes to desired thickness
 - Stevia or erythritol to taste for additional sweetness
+
+## Keto Libido Smoothie
+
+### Health Benefit
+This smoothie is designed to support libido with ingredients known for enhancing blood flow, energy levels, and overall vitality, contributing to improved sexual health.
+
+### Ingredients
+
+- **1 cup water** - As the base.
+- **1-2 teaspoons natural watermelon flavoring** - Watermelon is rich in L-citrulline, an amino acid that may help improve blood flow.
+- **2 tablespoons keto-friendly sweetener** - Erythritol, monk fruit, or stevia.
+- **1 tablespoon cocoa powder (unsweetened)** - High in antioxidants, cocoa can increase serotonin levels in the brain, enhancing mood.
+- **1/2 avocado** - High in vitamin E, contributing to energy levels and vitality.
+- **1 tablespoon maca powder** - Known for its potential to increase libido and endurance.
+- **1 teaspoon vanilla extract** - For flavor.
+- **A pinch of cayenne pepper (optional)** - Can enhance circulation and blood flow.
+- **Ice cubes** - To desired consistency.
+
+### Preparation Steps
+
+1. **Blend water and watermelon flavoring**: Start by blending the water with the watermelon flavoring, adjusting the amount to taste.
+2. **Add the sweetener and other ingredients**: Add the keto-friendly sweetener, cocoa powder, avocado, maca powder, vanilla extract, and optionally, a pinch of cayenne pepper.
+3. **Blend until smooth**: Blend everything until you achieve a smooth, creamy consistency. Add ice as needed for thickness.
+4. **Adjust if necessary**: Taste, and adjust sweetness or flavor intensity as desired.
+5. **Serve fresh**: Enjoy this smoothie immediately for the best taste and nutritional benefits.
+
+### Net Carbs
+Estimated **6-8g net carbs** per serving, depending on specific ingredient brands and measurements. This smoothie fits well within a ketogenic diet framework while aiming to enhance libido through nutrition.
+
