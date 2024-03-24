@@ -109,3 +109,35 @@ This smoothie is designed to support libido with ingredients known for enhancing
 ### Net Carbs
 Estimated **6-8g net carbs** per serving, depending on specific ingredient brands and measurements. This smoothie fits well within a ketogenic diet framework while aiming to enhance libido through nutrition.
 
+
+
+# Strawberry Sunrise Keto Protein Smoothie
+
+## Health Benefit
+This smoothie is tailored for muscle repair and growth, providing a high-quality protein boost from whey, alongside healthy fats and antioxidants. It's an excellent choice for post-workout recovery or a nutrient-rich meal replacement, perfectly aligning with ketogenic dietary goals.
+
+## Ingredients
+
+- **1 scoop (approx. 30g) of low-carb whey protein powder**: 1.26g net carbs
+- **1 cup of unsweetened almond milk**: 0g net carbs
+- **2 tablespoons of unsweetened peanut or almond butter**: 2-4g net carbs
+- **1/4 cup of spinach**: <1g net carbs
+- **1/4 cup of frozen strawberries**: Approx. 2g net carbs
+- **1 tablespoon of chia seeds**: 1g net carb (after fiber subtraction)
+- **1/2 teaspoon of cinnamon**: Negligible net carbs
+- **Ice cubes**: Adjust to desired thickness
+- **Stevia or erythritol to taste**: 0g net carbs
+
+## Instructions
+
+1. **Blend the Base**: Combine unsweetened almond milk and spinach in a blender. Blend until smooth.
+2. **Add Protein and Flavors**: Incorporate the whey protein powder, peanut or almond butter, frozen strawberries, chia seeds, and cinnamon.
+3. **Achieve Smooth Consistency**: Continue blending until the mixture is creamy and smooth. Add ice cubes as needed to reach your preferred consistency.
+4. **Adjust Sweetness**: Sweeten with stevia or erythritol according to your taste.
+5. **Enjoy Fresh**: Serve the smoothie immediately for the best flavor and nutrient retention.
+
+## Total Estimated Net Carbs
+
+- **6.26 to 8.26g net carbs**, depending on the specific brands and types of ingredients used.
+
+This "Strawberry Sunrise Keto Protein Smoothie" is designed to support your fitness and nutritional goals within a ketogenic lifestyle, offering a delicious, satisfying way to enjoy a protein-rich meal.
