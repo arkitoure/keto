@@ -141,3 +141,37 @@ This smoothie is tailored for muscle repair and growth, providing a high-quality
 - **6.26 to 8.26g net carbs**, depending on the specific brands and types of ingredients used.
 
 This "Strawberry Sunrise Keto Protein Smoothie" is designed to support your fitness and nutritional goals within a ketogenic lifestyle, offering a delicious, satisfying way to enjoy a protein-rich meal.
+
+
+# Keto Radiance Piña Colada Smoothie
+
+A delightful fusion of tropical flavors and health-boosting ingredients, this smoothie offers a delicious way to support your well-being while adhering to a keto lifestyle.
+
+## Ingredients
+
+- **1 cup keto-friendly pineapple juice** (Mix water with pineapple flavoring and a keto-friendly sweetener to taste.)
+- **1/2 cup coconut milk** (Use full-fat for a rich, creamy texture.)
+- **1 scoop vanilla or unflavored low-carb whey protein powder** (For muscle support and satiety.)
+- **1 tablespoon MCT oil** (For energy and to support ketosis.)
+- **1/4 cup plain, unsweetened kefir** (For a boost in beneficial probiotics.)
+- **1 teaspoon chia seeds** (For added fiber and omega-3 fatty acids.)
+- **Ice cubes** (Adjust according to desired thickness.)
+
+## Instructions
+
+1. **Prepare Keto Pineapple Juice**: In a jug, mix water with pineapple flavoring and sweetener until well combined.
+2. **Blend Ingredients**: Combine the keto pineapple juice, coconut milk, whey protein powder, MCT oil, kefir, chia seeds, and ice cubes in a blender. Blend until smooth and creamy.
+3. **Adjust Consistency**: If the smoothie is too thick, add a little more water or coconut milk and blend again to reach your preferred consistency.
+4. **Serve**: Pour the smoothie into a large glass. Enjoy immediately for a refreshing and nourishing treat.
+
+## Health Highlights
+
+- **MCT Oil & Coconut Milk**: Provide healthy fats for ketosis and cognitive function.
+- **Whey Protein**: Aids muscle repair and enhances satiety.
+- **Kefir**: Supports gut health with probiotics.
+- **Chia Seeds**: Offers fiber and omega-3s for digestive and heart health.
+
+## Net Carbs
+
+- Estimated **7.5-9g net carbs** total, depending on the brands of ingredients used and the amount of sweetener added. This smoothie is a keto-friendly way to enjoy the classic flavors of a piña colada while nourishing your body.
+
