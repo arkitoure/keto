@@ -143,35 +143,36 @@ This smoothie is tailored for muscle repair and growth, providing a high-quality
 This "Strawberry Sunrise Keto Protein Smoothie" is designed to support your fitness and nutritional goals within a ketogenic lifestyle, offering a delicious, satisfying way to enjoy a protein-rich meal.
 
 
-# Keto Radiance Piña Colada Smoothie
+# Keto Radiance Piña Colada Smoothie with Collagen Boost
 
-A delightful fusion of tropical flavors and health-boosting ingredients, this smoothie offers a delicious way to support your well-being while adhering to a keto lifestyle.
+Indulge in a tropical escape while nourishing your body with this keto-friendly smoothie. Enhanced with collagen for added health benefits, it's a delicious way to support overall well-being.
 
 ## Ingredients
 
-- **1 cup keto-friendly pineapple juice** (Mix water with pineapple flavoring and a keto-friendly sweetener to taste.)
-- **1/2 cup coconut milk** (Use full-fat for a rich, creamy texture.)
+- **1 cup keto-friendly pineapple juice** (Combine water with pineapple flavoring and keto-friendly sweetener to taste.)
+- **1/2 cup coconut milk** (Opt for full-fat for a rich, creamy texture.)
 - **1 scoop vanilla or unflavored low-carb whey protein powder** (For muscle support and satiety.)
-- **1 tablespoon MCT oil** (For energy and to support ketosis.)
-- **1/4 cup plain, unsweetened kefir** (For a boost in beneficial probiotics.)
+- **1 tablespoon MCT oil** (To support energy levels and ketosis.)
+- **1/4 cup plain, unsweetened kefir** (To enrich your gut flora with probiotics.)
+- **1 tablespoon of collagen powder** (For supporting skin, joint, and gut health.)
 - **1 teaspoon chia seeds** (For added fiber and omega-3 fatty acids.)
-- **Ice cubes** (Adjust according to desired thickness.)
+- **Ice cubes** (Adjust to achieve desired thickness.)
 
 ## Instructions
 
-1. **Prepare Keto Pineapple Juice**: In a jug, mix water with pineapple flavoring and sweetener until well combined.
-2. **Blend Ingredients**: Combine the keto pineapple juice, coconut milk, whey protein powder, MCT oil, kefir, chia seeds, and ice cubes in a blender. Blend until smooth and creamy.
-3. **Adjust Consistency**: If the smoothie is too thick, add a little more water or coconut milk and blend again to reach your preferred consistency.
-4. **Serve**: Pour the smoothie into a large glass. Enjoy immediately for a refreshing and nourishing treat.
+1. **Keto Pineapple Juice Preparation**: Mix water, pineapple flavoring, and sweetener in a jug until you achieve the desired taste.
+2. **Combine Ingredients**: In a blender, add the keto pineapple juice, coconut milk, whey protein powder, MCT oil, kefir, collagen powder, chia seeds, and ice cubes. Blend until the mixture becomes smooth and creamy.
+3. **Consistency Adjustment**: If needed, add more water or coconut milk and blend again to reach the perfect consistency.
+4. **Ready to Serve**: Pour your smoothie into a large glass and enjoy this refreshing, nutrient-packed drink right away.
 
 ## Health Highlights
 
-- **MCT Oil & Coconut Milk**: Provide healthy fats for ketosis and cognitive function.
-- **Whey Protein**: Aids muscle repair and enhances satiety.
-- **Kefir**: Supports gut health with probiotics.
-- **Chia Seeds**: Offers fiber and omega-3s for digestive and heart health.
+- **MCT Oil & Coconut Milk**: Supply healthy fats to fuel your body and brain.
+- **Whey Protein**: Enhances muscle repair and promotes feelings of fullness.
+- **Kefir**: Provides probiotics for a healthy gut microbiome.
+- **Collagen Powder**: Supports skin elasticity, healthy joints, and gut health, contributing to overall vitality.
+- **Chia Seeds**: Rich in fiber and omega-3 fatty acids, supporting digestive health and cardiovascular well-being.
 
 ## Net Carbs
 
-- Estimated **7.5-9g net carbs** total, depending on the brands of ingredients used and the amount of sweetener added. This smoothie is a keto-friendly way to enjoy the classic flavors of a piña colada while nourishing your body.
-
+- Estimated to have **8-10g net carbs** in total, factoring in the collagen and depending on the specific ingredients used and their quantities. This smoothie remains a delightful, keto-friendly option for those looking to enjoy the essence of a piña colada while receiving a boost in nutrition.
