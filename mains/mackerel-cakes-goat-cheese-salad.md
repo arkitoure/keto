@@ -1,6 +1,6 @@
 # Keto Fried Mackerel Cakes with Goat Cheese Salad
 
-Enjoy the best of both worlds with this savory and refreshing meal. The richness of the mackerel cakes pairs wonderfully with the lightness of the goat cheese salad, offering a balanced keto-friendly dish that's packed with flavor and nutrients.
+Enjoy a harmonious blend of savory and fresh with this keto-friendly duo. Perfectly seasoned mackerel cakes meet a light and creamy goat cheese salad for a meal that’s both nutritious and satisfying.
 
 ## Keto Fried Mackerel Cakes Ingredients
 
@@ -36,7 +36,7 @@ Enjoy the best of both worlds with this savory and refreshing meal. The richness
 ### For the Mackerel Cakes
 
 1. **Combine Ingredients**: In a large bowl, mix together the mackerel, almond flour, eggs, green onions, parsley, mustard, lemon zest, juice, cayenne, smoked paprika, salt, and pepper.
-2. **Form and Coat**: Shape the mixture into patties. Optionally, press each patty into unsweetened coconut flakes on both sides.
+2. **Form and Coat**: Shape the mixture into patties. This recipe should yield about 8 medium-sized cakes. Optionally, press each patty into unsweetened coconut flakes on both sides.
 3. **Fry**: Heat coconut oil in a skillet over medium heat. Fry the cakes for 3-4 minutes on each side until golden and crispy.
 
 ### For the Goat Cheese Salad
@@ -47,9 +47,9 @@ Enjoy the best of both worlds with this savory and refreshing meal. The richness
 
 ## Serving
 
-Plate the Keto Fried Mackerel Cakes alongside or on top of the Goat Cheese Salad. Enjoy a meal that’s satisfying, keto-compliant, and bursting with fresh flavors.
+Serve 2 to 3 Keto Fried Mackerel Cakes per person, accompanied by a generous helping of the Goat Cheese Salad. This pairing offers a delightful mix of textures and flavors, making for a satisfying keto meal.
 
 ## Nutritional Information
 
-- **Net Carbs**: Approximately 3-5g per serving, factoring in the mackerel cakes and a serving of salad. Final count depends on specific ingredient brands and amounts used.
-- **Protein & Fats**: High, provided by the mackerel, goat cheese, and added oils, supporting ketosis and overall health.
+- **Net Carbs**: Approximately 3-5g per serving, considering 2 to 3 cakes alongside a serving of salad. The exact count depends on the specific brands and amounts of ingredients used.
+- **Protein & Fats**: High, thanks to the mackerel, goat cheese, and added oils, supporting a balanced keto diet.
