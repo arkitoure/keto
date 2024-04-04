@@ -20,7 +20,7 @@ Indulge in this sumptuous, keto-friendly Italian-inspired dish. Combining the li
 1. **Prepare Konjac Spaghetti**: Cook according to the package's instructions. Drain, rinse, and toss with EVOO to prevent sticking.
 2. **Crisp the Guanciale**: In a skillet over medium heat, render the guanciale until crispy. Remove and set aside, leaving fat.
 3. **Cook Shrimp and Sausage**: Cook the shrimp and sausage in guanciale fat until shrimp are pink and sausage is browned.
-4. **Combine Ingredients**: Lower heat, reintroduce guanciale, and add spaghetti, eggs, pesto, and ricotta. Toss until creamy.
+4. **Combine Ingredients**: Remove from heat, reintroduce guanciale, and add spaghetti, eggs, pesto, and ricotta. Toss until creamy.
 5. **Season**: Salt and pepper to taste.
 6. **Serve**: Top generously with grated Pecorino Romano cheese. Garnish with basil or parsley if desired.
 
