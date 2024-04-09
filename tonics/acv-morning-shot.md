@@ -9,6 +9,7 @@ Boost your morning with this nutrient-rich shot, packed with anti-inflammatory a
 - **Apple Cider Vinegar (ACV)**: 1 cup (240 ml)
 - **Lemon Juice**: 1/2 cup (120 ml), freshly squeezed
 - **MCT Oil**: 4 tablespoons
+- **Cinnamon**: 1 teaspoon, ground
 - **Cayenne Pepper**: 1/2 teaspoon, adjust to taste
 - **Iodized Salt**: 4 pinches, one for each serving
 - **Black Pepper**: 1/4 teaspoon (optional, but recommended to enhance curcumin absorption)
@@ -18,37 +19,38 @@ Boost your morning with this nutrient-rich shot, packed with anti-inflammatory a
 ## Whole Batch Macros (2 Cups/480 ml)
 
 - **Calories**: Approximately 520
-- **Net Carbs**: Approximately 3-5g
+- **Net Carbs**: Approximately 4-6g
 - **Fat**: Approximately 56g
 - **Protein**: Minimal; less than 1g
 
 ## Daily Single Serving Macros (1/2 Cup/120 ml)
 
 - **Calories**: Approximately 130
-- **Net Carbs**: Approximately 0.75-1.25g
+- **Net Carbs**: Approximately 1-1.5g
 - **Fat**: Approximately 14g
 - **Protein**: Minimal; less than 0.25g
 
 ## Health Benefits
 
-- **Turmeric & Ginger**: Both are known for their anti-inflammatory properties and support for digestive health.
-- **Apple Cider Vinegar & Lemon Juice**: May aid in weight loss, improve digestion, and support immune function.
-- **MCT Oil**: Quickly metabolizes into ketones, providing energy and supporting ketosis.
-- **Cayenne Pepper**: Boosts metabolism and aids in digestion.
-- **Black Pepper**: Enhances curcumin absorption for improved anti-inflammatory benefits.
-- **Iodized Salt**: Supplies iodine, essential for thyroid function.
+- **Turmeric & Ginger**: Offer powerful anti-inflammatory effects and digestive support.
+- **Apple Cider Vinegar & Lemon Juice**: Aid in weight management, enhance digestion, and support immune function.
+- **MCT Oil**: Provides a quick source of energy that supports ketosis.
+- **Cinnamon**: Contains antioxidants and may help regulate blood sugar levels.
+- **Cayenne Pepper**: Can increase metabolism and aid in digestion.
+- **Black Pepper**: Improves the absorption of curcumin, maximizing turmeric's benefits.
+- **Iodized Salt**: Essential for thyroid health, providing a source of iodine.
 
 ## Instructions
 
-1. **Prep**: Wash and optionally peel turmeric and ginger. Roughly chop for easier blending.
-2. **Blend**: Combine all ingredients in a blender until smooth. Adjust with water to desired consistency.
-3. **Store**: Transfer to an airtight container and refrigerate.
-4. **Serve**: Shake or blend briefly before serving 1/2 cup each morning on an empty stomach. Follow with water.
+1. **Prep**: Clean and roughly chop the turmeric and ginger roots.
+2. **Blend**: Combine all ingredients in a blender, adjusting with water as needed for desired consistency.
+3. **Storage**: Pour into an airtight container; refrigerate.
+4. **Daily Use**: Shake or blend a small amount before serving 1/2 cup each morning. Follow with water.
 
 ## Notes
 
-- Shake well before each use as natural separation may occur.
-- Best if consumed within 4 days for maximum freshness and potency.
-- Customize the sweetness and spice level to your preference with optional sweetener and cayenne pepper adjustments.
+- A brief shake or blend before use helps reintegrate any separation.
+- Consume within 4 days to ensure freshness and potency.
+- Adjust the level of sweetness and heat to your preference, and enjoy the added depth of flavor from the cinnamon.
 
 This morning shot is a powerful way to start your day, offering a perfect blend of nutrients to support a ketogenic lifestyle and overall well-being.
