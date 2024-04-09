@@ -6,7 +6,7 @@ Boost your morning with this nutrient-rich shot, packed with anti-inflammatory a
 
 - **Fresh Turmeric Root**: 60g
 - **Fresh Ginger Root**: 60g
-- **Apple Cider Vinegar (ACV)**: 1 cup (240 ml)
+- **Apple Cider Vinegar w/Mother (ACV)**: 1 cup (240 ml)
 - **Lemon Juice**: 1/2 cup (120 ml), freshly squeezed
 - **MCT Oil**: 4 tablespoons
 - **Cinnamon**: 1 teaspoon, ground
