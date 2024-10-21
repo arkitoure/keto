@@ -12,7 +12,7 @@ A rich and satisfying keto-friendly deep dish pizza using a cloud bread base mad
 - 1 tbsp collagen powder
 - 1 tsp baking powder (mixed with egg whites)
 - 1/4 cup grated Pecorino Romano cheese
-- Salt and Italian seasoning to taste
+- Salt/Oragano/Garlic to taste
 
 ### Toppings:
 - 1 cup shredded mozzarella cheese (low-moisture)
