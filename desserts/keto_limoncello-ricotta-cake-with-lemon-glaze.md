@@ -46,7 +46,13 @@ This Limoncello Ricotta Cake is a light and fluffy keto dessert with a hint of c
 4. Generously drizzle the glaze over the cooled cake.
 5. Let it set for at least an hour so that glaze is solid or set in the refrigerator for a 15 mins if in a hurry.
 
-## Macros (Per Slice, 10 Servings)
+### Total Macros (Entire Cake with Glaze)
+- **Calories**: ~2,690 kcal
+- **Protein**: ~112g
+- **Fat**: ~190g
+- **Net Carbs**: ~58g
+
+### Per Slice (10 Servings)
 - **Calories**: ~269 kcal
 - **Protein**: ~11g
 - **Fat**: ~19g
